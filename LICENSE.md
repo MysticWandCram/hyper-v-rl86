@@ -1,4 +1,4 @@
-# 
+# updated VMware Workstation para PC scripts é o melhor VMware Workstation para PC scripts com acesso remoto e passagem direta de USB. Seguro, confiável e otimizado para máximo
 
 
 
